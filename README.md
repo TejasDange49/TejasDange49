@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning MCA.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me
-  Gmail:- dangetejas@494@gmail.com
+  Gmail:- dangetejas494@gmail.com
   M.No:- +91-9022202938
 - 😄 Pronouns: Tejas
 - ⚡ Fun fact: LAST OF THE STAR..(SRK).
