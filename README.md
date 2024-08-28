@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @TejasDange49
 - 👀 I’m interested in coding..
-- 🌱 I’m currently learning MCA.
+- 🌱 MCA
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me
   Gmail:- dangetejas494@gmail.com
